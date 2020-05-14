@@ -1,1 +1,1 @@
-# sweet-studio
+# depilation studio "Sweet"
